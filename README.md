@@ -1,1 +1,1 @@
-# angels
+I don't like a lot of the people on here, the people that throw a fit when you have an opinion that doesn't even slightly align with theirs. I'm not planning on being friends with you people. Political discussion is so important and none of you are adult enough to have those discussions without shitting your pants. I'm a man, far right, white, and conservative, something that's suddenly more difficult to live as then anything else and especially on a place like this game (which I find really funny because it hasn't been that way historically on here.) 
